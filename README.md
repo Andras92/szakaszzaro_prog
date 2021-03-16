@@ -1,0 +1,1 @@
+# szakaszzaro_prog
